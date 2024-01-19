@@ -1,1 +1,0 @@
-# ExamenArteni_Nicolae
